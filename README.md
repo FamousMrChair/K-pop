@@ -29,7 +29,7 @@ interested in their music. BTS and other K-pop groups are only growing in popula
 
 <h3> My recommendations to get started with K-pop. </h3>
 
-STAN LOONA. That's all I have to say, just stan LOONA by far the most talented girl group I have ever seen and they cover all types of concepts 
+<p>STAN LOONA. That's all I have to say, just stan LOONA by far the most talented girl group I have ever seen and they cover all types of concepts 
 and music genres. Absolutely amazing.</p>
 
 <a href="https://kprofiles.com/loona-members-profile/"> LOONA!</a>
